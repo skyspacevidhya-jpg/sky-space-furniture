@@ -18,7 +18,7 @@ We also provide custom-made designs tailored to your office interiors.
 👉 Visit our collection of [Lounge Office Chairs in Dubai](https://skyspacefurniture.com/cat/office-furniture/lounge)  
 
 🌐 Website: [www.skyspacefurniture.com](https://skyspacefurniture.com/)  
-📞 Phone: +971-xxx-xxxx  
+📞 Phone: +971 432 858 93
 
 ---
 
